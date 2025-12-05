@@ -1,0 +1,1 @@
+Keterangan: Dokumen ini telah disetujui (ACC) oleh Dosen Pembimbing ([Nama Dosen]) secara verbal untuk disidangkan. Lembar pengesahan bertanda tangan belum terlampir karena kendala kesibukan dosen dan akan disusulkan segera setelah ditandatangani. Link Presentasi: (https://docs.google.com/presentation/d/1JQxiWHOsGwaKe-5dYtENVj46tuOZZkoiXzzrpcJawLM/edit?usp=sharing)
